@@ -234,4 +234,4 @@ For The King II is available as a full free version, providing all features and 
 Start your adventure today! Download For The King II for free and experience the thrill of strategic RPG gameplay with friends.
 
 ---
-**Last updated:** 2026-11-12 23:10:11 UTC
+**Last updated:** 2026-11-13 04:55:05 UTC
